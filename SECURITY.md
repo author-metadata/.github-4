@@ -1,10 +1,21 @@
+My name is Warith Akbar and i am not a developer. I an a founder and owner of this organization. Again if you want to work with my developer team i need you to file out a application and send it to me via email or text messages. 
+
+1 . I need a copy of your Driver license.
+2. i need a copy of your resume 
+3. i need your bday and address ect .
+
+email or text me this information so we won't have a problem when i send my open source eltgryh the FBI data review. 
+On GitHub i have 10 different software that has been claimed by other hacker. 
+I need those files if you find those consulted for me and you would be a GitHub God. 
+Warith Akbar hackernoon back . 
+This is the critical theory depository security dev environment posture. All illegal use 
 Thanks for helping make GitHub safe for everyone.
 
 ## Security
 
-GitHub takes the security of our software products and services seriously, including all of the open source code repositories managed through our GitHub organizations, such as [GitHub](https://github.com/GitHub).
+GitHub takes the security of our software products and services seriously, including all of the open source code repositories managed through our GitHub organizations, such as [GitHub](https://console.firebase.google.com/u/0/project/systemakbar365.com).
 
-Even though [open source repositories are outside of the scope of our bug bounty program](https://bounty.github.com/index.html#scope) and therefore not eligible for bounty rewards, we will ensure that your finding gets passed along to the appropriate maintainers for remediation. 
+Even though [open source repositories are outside of the scope of our bug bounty program](https://onmogul.shop) and therefore not eligible for bounty rewards, we will ensure that your finding gets passed along to the appropriate maintainers for remediation. All developers that develop on my platform is subject to to hostile takeover because i have not given permission for developers to clone my company repo . Your supposed to help me not take my work and claim ny work .
 
 ## Reporting Security Issues
 
